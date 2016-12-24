@@ -1,37 +1,14 @@
-## Welcome to GitHub Pages
+# The fanfiction information
+This fanfiction was made by rovertdude/rovertpug about patmagroin84 on TotalFreedom.
+Enjoy.
 
-You can use the [editor on GitHub](https://github.com/rovertdude/patmagroin84/edit/master/index.md) to maintain and preview the content for your website in Markdown files.
-
-Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
-
-### Markdown
-
-Markdown is a lightweight and easy-to-use syntax for styling your writing. It includes conventions for
-
-```markdown
-Syntax highlighted code block
-
-# Header 1
-## Header 2
-### Header 3
-
-- Bulleted
-- List
-
-1. Numbered
-2. List
-
-**Bold** and _Italic_ and `Code` text
-
-[Link](url) and ![Image](src)
-```
-
-For more details see [GitHub Flavored Markdown](https://guides.github.com/features/mastering-markdown/).
-
-### Jekyll Themes
-
-Your Pages site will use the layout and styles from the Jekyll theme you have selected in your [repository settings](https://github.com/rovertdude/patmagroin84/settings). The name of this theme is saved in the Jekyll `_config.yml` configuration file.
-
-### Support or Contact
-
-Having trouble with Pages? Check out our [documentation](https://help.github.com/categories/github-pages-basics/) or [contact support](https://github.com/contact) and we’ll help you sort it out.
+# The fanfiction
+"Ohhhh, yes baby!" said patmagroin84 "Cut that cake out, bitch!"
+He was in a house, at his birthday party.
+"Can you stop calling me bitch, bitch?" said rovertpug, his wife with the face of a pug.
+"Fine, fine." said patmagroin84. "What about slut"
+rovertpug slaps patmagroin84
+"You. Me. Your room. 10 minutes." said rovertpug
+Next time they were seen, rovertpug was very fatter.
+The end.
+for now ill prob expand on this
